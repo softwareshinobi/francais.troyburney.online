@@ -26,25 +26,16 @@ In Spanish, we have a gradient of intensity. You already know these, but let’s
 
 ## French Equivalents (The Recipe)
 
-French flirting is often about "mignon" (cuteness) or "beauté" (beauty). Here is how you swap your Spanish vocabulary for French.
-
-* **Belle (Spanish: Guapa/Bella):** The direct equivalent. It is classic and never fails.
-* **Jolie (Spanish: Linda):** This means "pretty." It’s a bit lighter and very common for "Day One" learners.
-* **Magnifique (Spanish: Hermosa):** Use this when *belle* isn't enough. It implies a "magnificent" beauty.
-* **Déesse (Spanish: Diosa):** The literal translation for Goddess. Use this sparingly for high impact.
-* **Ma Reine (Spanish: Mi Reina):** While "Reine" exists, French speakers often add the "Ma" (My) to make it a term of endearment.
-
-`Pro Tip`: In French, the "e" at the end of these feminine adjectives is usually silent, but it makes the preceding consonant sound crisp. Don't skip the "l" sound in *Belle*!
-
-## Comparisons at a Glance
-
-| Spanish (B1) | French (A1) | Vibe |
+| Spanish Flirt Name | French Option | Vibe |
 | --- | --- | --- |
-| Guapa | **Belle** | Classic attraction |
-| Linda | **Jolie** | Sweet / Pretty |
-| Hermosa | **Magnifique** | Deeply impressed |
-| Diosa | **Déesse** | Top-tier flirting |
-| Mi Reina | **Ma Reine** | Affectionate / Bold |
+| **Cariño (Darling)** | *Chérie* | The "Boy Toy" / Intimate standard |
+| **Diosa** | *Déesse* | Top-tier flirting |
+| **Guapa** | *Belle* | Classic attraction |
+| **Guapa** | *Beauté* | Direct / "Eye-fucking" energy |
+| **Hermosa** | *Magnifique* | Deeply impressed |
+| **Linda** | *Jolie* | Sweet / Pretty |
+| **Linda (Cutie)** | *Mignonne* | Playful / "Bad Boy" teasing |
+| **Mi Reina** | *Ma Reine* | Affectionate / Bold |
 
 ## Tips for the "Day One" Learner:
 
