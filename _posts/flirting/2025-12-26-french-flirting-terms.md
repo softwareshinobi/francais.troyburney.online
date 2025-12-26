@@ -4,7 +4,7 @@ layout: post
 title:  "French Flirting for Spanish Speakers"
 author: vidadeavion
 categories: [ Language, French ]
-image: assets/images/recetas/colombianas/empanadas/masa.jpeg
+image: assets/images/france/nice/france-nice-skyline.png
 beforetoc: "Bridging the gap between your Spanish 'Guapa' and French 'Belle'."
 toc: true
 
